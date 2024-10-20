@@ -1,2 +1,2 @@
-# joker-net
-LEAKED
+# LOREZ-DDOS
+Don't abuse 
